@@ -1,4 +1,4 @@
-# ANALYSIS-OF-REVENUE-FLUCTUATIONS-OF-THANH-CONG-TEXTILE-GARMENT-INVESTMENT-TRADING-JSC
+# PHÂN TÍCH BIẾN ĐỘNG DOANH THU CỦA CÔNG TY CỔ PHẦN DỆT MAY – ĐẦU TƯ – THƯƠNG MẠI THÀNH CÔNG GIAI ĐOẠN 2011-2021
 ## ĐẶT VẤN ĐỀ
    Với tình hình kinh tế hội nhập trên thế giới ngày càng phát triển và mở rộng, kéo theo cơ hội giao lưu kinh tế giữa các nước trong khu vực cũng như trên thế giới ngày càng gia tăng. Các doanh nghiệp Việt Nam ngày càng đầy mạnh sản xuất, tạo ra nhiều sản phẩm để phục vụ nhu cầu thiết yếu của người tiêu dùng. Chính vì vậy vấn đề khó khăn được đặt ra với các doanh nghiệp ở đây là chất lượng và giá cả của sản phẩm làm sao vừa có thể cạch tranh được với hàng hóa quốc tế vừa mang lại doanh thu cao. Do đó các doanh nghiệp phải tìm ra giải pháp quản lí tối ưu nhất để nâng cao chất lượng sản phẩm, giảm giá thành, từ đó có thể tăng doanh thu và mở rộng sản xuất kinh doanh trên nhiều lĩnh vực.
    
